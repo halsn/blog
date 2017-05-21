@@ -1,1 +1,1 @@
-###  [:metal:](https://github.com/halsn/blog/issues) 
+###  [:notebook:](https://github.com/halsn/blog/issues) 
