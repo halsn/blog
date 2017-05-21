@@ -1,1 +1,1 @@
-###  [【＝◈︿◈＝】](https://github.com/halsn/blog/issues) 
+###  [:metal:](https://github.com/halsn/blog/issues) 
